@@ -1,0 +1,1 @@
+[ASM_PART1_DOTRUNGCHINH_BH01666_SLIDE.pdf](https://github.com/user-attachments/files/17540639/ASM_PART1_DOTRUNGCHINH_BH01666_SLIDE.pdf)
